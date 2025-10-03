@@ -10,3 +10,6 @@ Yeah im ready for summer and to go out to do stuff.
 
 #9-30-25
 The prase 6 7 is often used as a humourous term. For example "The test will have 6 to 7 questions", "6 7!". The tone for it is never serious and always in a joking tone.
+
+#9-22-25
+I think that working in a virtual store would not be benifitting to the real work force. Without real workers in the world things that break down would not be able to get fixed at all. If virtual stores were ran what would happen to the real stores? I hypothosize that if there was only virtual stores getting grocries would be more difficult in the case of an emergency.
