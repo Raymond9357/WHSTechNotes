@@ -7,3 +7,6 @@
 
 #5-19-25
 Yeah im ready for summer and to go out to do stuff.
+
+#9-30-25
+The prase 6 7 is often used as a humourous term. For example "The test will have 6 to 7 questions", "6 7!". The tone for it is never serious and always in a joking tone.
