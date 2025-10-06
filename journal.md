@@ -18,3 +18,5 @@ I think that working in a virtual store would not be benifitting to the real wor
 My idea for an AI project would be to help game devolpers create complex coding systems and UI interfaces. This would help by cutting time and or costs for devolping a game. Furthermore you could save/download the asset and custumize it to your liking.
 
 #9-08-25
+
+#10-06-25
