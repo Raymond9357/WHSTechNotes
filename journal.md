@@ -18,4 +18,4 @@ I think that working in a virtual store would not be benifitting to the real wor
 My idea for an AI project would be to help game devolpers create complex coding systems and UI interfaces. This would help by cutting time and or costs for devolping a game. Furthermore you could save/download the asset and custumize it to your liking.
 
 #10-06-25
-Me personally I would not allow things such as AI tools or technolgy beacuase it could possibly distrupt the learning flow for students by letting them get away with the AI doing work for them and that wouldnt be benifecial for students to not challange their brains and gain knowledge.
+Me personally I would not allow things such as AI tools or technolgy because it could possibly distrupt the learning flow for students by letting them get away with the AI doing work for them and that wouldnt be benifecial for students to not challange their brains and gain knowledge.
