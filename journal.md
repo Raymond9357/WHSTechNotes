@@ -24,7 +24,7 @@ Me personally I would not allow things such as AI tools or technolgy because it 
 | Name      | Class| Seat     |
 | :---       |    :----:   |          ---: |
 | Franklon      | 2cd       | 91A   |
-| Hardeep| 1st      | 61F |      |
-| Marla      | 3rd       | 35B   |
+| Hardeep| 3rd      | 61F |      |
+| Marla      | 1st       | 35B   |
 
 
