@@ -19,3 +19,12 @@ My idea for an AI project would be to help game devolpers create complex coding 
 
 #10-06-25
 Me personally I would not allow things such as AI tools or technolgy because it could possibly distrupt the learning flow for students by letting them get away with the AI doing work for them and that wouldnt be benifecial for students to not challange their brains and gain knowledge.
+
+#10-20-25
+| Name      | Class| Seat     |
+| :---       |    :----:   |          ---: |
+| Franklon      | 2cd       | 91A   |
+| Hardeep| 1st      | 61F |      |
+| Marla      | 3rd       | 35B   |
+
+
