@@ -28,7 +28,7 @@ Me personally I would not allow things such as AI tools or technolgy because it 
 | Marla      | 1st       | 35B   |
 
 #10-27-25
-| Name      | Class| Seat     |
+| Name      | Main Dish| Dessert     |
 | :---       |    :----:   |          ---: |
 | Fiona      |        |    |
 | Tobias|       |  |      |
