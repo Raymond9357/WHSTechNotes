@@ -38,3 +38,4 @@ Me personally I would not allow things such as AI tools or technolgy because it 
 The peop;e who will be most affected by the loss of fundinf for SNAP will be the people without a steady income or those who dont make enough money already. With our techolgy we can set up fundraisers to help those in need of food and money. Without techolgy to help those in need we could send checks of money to a fundraising place for the SNAPS or food. I would solve food insecurity by making food have little to no tax on it and ake food slightly cheaper for the less fortunate.
 
 # November 17, 2025
+I am excited for thanksgiving break becuause i get to go to the zoo on my birthday and have no shcool for the rest of the week.
