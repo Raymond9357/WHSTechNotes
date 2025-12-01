@@ -39,3 +39,5 @@ The peop;e who will be most affected by the loss of fundinf for SNAP will be the
 
 # November 17, 2025
 I am excited for thanksgiving break becuause i get to go to the zoo on my birthday and have no shcool for the rest of the week.
+
+# December 1, 2025
