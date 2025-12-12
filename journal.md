@@ -41,5 +41,7 @@ The peop;e who will be most affected by the loss of fundinf for SNAP will be the
 I am excited for thanksgiving break becuause i get to go to the zoo on my birthday and have no shcool for the rest of the week.
 
 # December 1, 2025
+I think drons would be really great for transporting thing to place and hellping those who need something in a time of need,also if we could make bigger drones itt would help alot with plants and farming and possibly feeding animals.
 
 # December 8, 2025
+I dont think self drivig cars should be a thing becuase as stated a Waymo car ran a red light and possibly put anyone who was in the car in danger of their lifes and other drivers.
