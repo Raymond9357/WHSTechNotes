@@ -47,4 +47,4 @@ I think drons would be really great for transporting thing to place and hellping
 I dont think self drivig cars should be a thing becuase as stated a Waymo car ran a red light and possibly put anyone who was in the car in danger of their lifes and other drivers.
 
 # January 6, 2026
-
+I used my technoolgy to sleep for gaming
