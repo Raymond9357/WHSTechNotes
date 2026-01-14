@@ -50,3 +50,4 @@ I dont think self drivig cars should be a thing becuase as stated a Waymo car ra
 I used my technoolgy to sleep for gaming
 
 # January 12, 2026
+without repurcussions for those who bully online they will keep on doing it so its importent to add a safety measure for all users to stop any and all potential problems as well as making the comunity a better place with good moderation.
