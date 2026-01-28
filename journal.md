@@ -51,3 +51,6 @@ I used my technoolgy to sleep for gaming
 
 # January 12, 2026
 without repurcussions for those who bully online they will keep on doing it so its importent to add a safety measure for all users to stop any and all potential problems as well as making the comunity a better place with good moderation.
+
+# January 30, 2026
+The reason why we need technology and why its importent is without it our medical centers such as clinics or hospitails would have a harder time if they did not have the technology we have today and could possibly lose paitents.
