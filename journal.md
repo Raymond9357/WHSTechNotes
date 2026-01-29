@@ -54,3 +54,6 @@ without repurcussions for those who bully online they will keep on doing it so i
 
 # January 20, 2026
 The reason why we need technology and why its importent is without it our medical centers such as clinics or hospitails would have a harder time if they did not have the technology we have today and could possibly lose paitents.
+
+# January 29, 2026
+I tested for Biology,Reading,and English; I got a better score from what i expected from myself and aced English and Reading but i don't know my score for biology, the only challaging pne was the biology testing.
