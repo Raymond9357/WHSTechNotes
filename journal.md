@@ -59,3 +59,4 @@ The reason why we need technology and why its importent is without it our medica
 I tested for Biology,Reading,and English; I got a better score from what i expected from myself and aced English and Reading but i don't know my score for biology, the only challaging pne was the biology testing.
 
 # Febuary 2, 2026
+if work spaces arent reliable to work in then people wont want to work in that envoirnment
