@@ -60,3 +60,5 @@ I tested for Biology,Reading,and English; I got a better score from what i expec
 
 # Febuary 2, 2026
 if work spaces arent reliable to work in then people wont want to work in that envoirnment
+
+# Febuary 12, 2026
