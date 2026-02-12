@@ -62,3 +62,4 @@ I tested for Biology,Reading,and English; I got a better score from what i expec
 if work spaces arent reliable to work in then people wont want to work in that envoirnment
 
 # Febuary 12, 2026
+I dont like football becuase i feel like they  drag thte game for too long not to mention breaks and the halftime show, I didnt watch the SuperBowl LX
