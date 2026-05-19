@@ -70,3 +70,5 @@ I dont like football becuase i feel like they  drag thte game for too long not t
 
 # April 27, 2026
 something I paid attention to this week was computer building and the way technology influenced it was AI rasing prices for certein parts needed to build a computer.
+
+# May 18, 2026
